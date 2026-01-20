@@ -1,6 +1,6 @@
 ##  About Me
 
-Hi! I'm **Gabriel Armado**
+Hi! I'm Gabriel Armado
 I play video games and pool for a living.
 I workout for my physical health. 
 I currently work for the City of San Diego
