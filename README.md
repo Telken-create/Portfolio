@@ -7,7 +7,9 @@ I currently work for the City of San Diego
 under the job category of Public Safety
 I run 2 teams 8 ball and 9 ball for pool
 under the American Pool Association (APA)
-pool league. 
+pool league. If you have more questions about me 
+feel free to connect with me on Linkedin.
+https://www.linkedin.com/in/gabriel-armado-8645a8202/
 
 
 ##  What I Do
