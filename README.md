@@ -7,8 +7,8 @@ I currently work for the City of San Diego
 under the job category of Public Safety
 I run 2 teams 8 ball and 9 ball for pool
 under the American Pool Association (APA)
-pool league. I help sustain active competitive
----
+pool league. 
+
 
 ##  What I Do
 
