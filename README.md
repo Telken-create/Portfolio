@@ -17,7 +17,8 @@ Current / Most recent Position
 Bachelors' in Business Admin (MIS) 
 at California State San Marcos University
 **Key Achievements:**  
-Current / previous position
+Currently work for City of San Diego
+in Law Enforcement
 
 ---
 
