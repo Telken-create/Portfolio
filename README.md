@@ -1,13 +1,17 @@
 ##  About Me
 
 Hi! I'm **Gabriel Armado**
-
+I play video games and pool for a living.
+I workout for my physical health. 
+I currently work for the City of San Diego
+under the job category of Public Safety
+I run 2 teams 8 ball and 9 ball for pool
+under the American Pool Association (APA)
+pool league. I help sustain active competitive
 ---
 
 ##  What I Do
 
-I play video games and pool for a living
-I workout for my physical health
 
 ###  Non-Profit  
 **Key Achievements:**  
@@ -16,9 +20,9 @@ Current / Most recent Position
 ###  Higher Education  
 Bachelors' in Business Admin (MIS) 
 at California State San Marcos University
+
 **Key Achievements:**  
-Currently work for City of San Diego
-in Law Enforcement
+
 
 ---
 
@@ -32,7 +36,7 @@ in Law Enforcement
 ###  Degrees  
 **Place Holder* — Place Holder
 
-[Projects](https://antonio-a2w.github.io/Projects/)
+[Projects]
  
 
 ###  Skills  
